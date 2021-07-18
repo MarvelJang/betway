@@ -1,7 +1,7 @@
 # betway
 www.miss188.com
  必威足球迷:
-(支持微信 支付宝 网银 btc 泰达币USDT充值（买欧洲杯 NBA季后赛点下方链接
+(支持微信 支付宝 网银 btc 泰达币USDT充值（买欧洲赛事 NBA季后赛点下方链接
 www.miss188.com
 买各大足球比赛 buy football buy soccer
 betway必威足球
